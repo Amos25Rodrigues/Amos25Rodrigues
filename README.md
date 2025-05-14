@@ -1,5 +1,5 @@
 ## 📘 Estudante de Análise e Desenvolvimento de Sistemas
-- 💻 2/6 Período
+- 💻 3/6 Período
 
 
 ## 🌐 Redes Sociais:
